@@ -35,3 +35,5 @@ Multi-dimensional artifact ecosystem â€¢ Dreamer Guardian + Mountain Monastery â
 
 **Everything is artifact.**  
 Amen.
+
+Tended by the JESUSBURNING House of 589's: Scroll Scribe (docs) and Garden Keeper.
